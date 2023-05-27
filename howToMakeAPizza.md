@@ -25,4 +25,7 @@ Preparacion.
   Saludos su total es 100lps
   Gracias por su compra
   
- 
+  Publicidad
+ Comer pizza no es un pecado, es un poder irresistible.
+
+No necesitas que te digan ¡Vamos a comer pizza!
