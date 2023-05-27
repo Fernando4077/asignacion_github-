@@ -18,4 +18,14 @@ Utencilio.
     refractario.
     
 Preparacion.
-    
+  Se van agregando los ingredientes en el bol mezclando la harina, sal, aceite etc. Hasta que quede una masa omogenia se estira la masa, se le hecha los restantes ingredientes se lleva al horno, luego de cocina se empaca.
+
+
+  Cajero
+  Saludos su total es 100lps
+  Gracias por su compra
+  
+  Publicidad
+ Comer pizza no es un pecado, es un poder irresistible.
+
+No necesitas que te digan ¡Vamos a comer pizza!
